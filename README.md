@@ -30,7 +30,7 @@ Accidents in a pool environment can be fatal even if swimming is not a hazardous
 
 5.  **Switching arms**
 
-   - Perform steps 3 and 4 with your left arm.
+   - Now perform steps 3 and 4 with your left arm.
    - Bring your right hand up out of the water thumb first and reach it back over your head.
 
 6. **Swimming a lap**
